@@ -1,1 +1,1 @@
-Code will be publicly avaliable at soon.
+Code will be publicly available at soon.
